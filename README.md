@@ -1,5 +1,5 @@
 # 💫 About Me
-🏢 Contentproviders Coordinator at Quivr<br>🎓 Civil engineering at KU Leuven
+🏢 Board member, Contentproviders and Infrastructure Coordinator at Quivr<br>🎓 Civil engineering at KU Leuven
 
 
 # 🌐 Socials
