@@ -1,5 +1,5 @@
 # 💫 About Me
-🏢 Board member, Contentproviders and Infrastructure Coordinator at Quivr<br>🎓 Civil engineering at KU Leuven
+🏢 President, Treasurer and Infrastructure Coordinator at Quivr<br>🎓 Civil engineering at KU Leuven
 
 
 # 🌐 Socials
